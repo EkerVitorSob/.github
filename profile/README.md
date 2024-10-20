@@ -1,4 +1,4 @@
-# Eker Vitor Sob
+# একের ভিতর সব
 
 **"Eker Vitor Sob"** (একের ভিতর সব) is a groundbreaking educational platform that transforms learning through interactive and visually engaging experiences. Tailored for students of all ages, from early learners to high schoolers, it blends traditional subjects like mathematics, physics, and biology with cutting-edge technology, making complex topics both fun and easy to understand.
 
